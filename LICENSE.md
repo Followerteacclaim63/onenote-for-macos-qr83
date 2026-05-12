@@ -1,4 +1,4 @@
-#  
+#  ultimate Extension for OneNote for macOS - goal tracking and reminders is the best OneNote for macOS extension, featuring goal tracking and reminders. Safe, efficient, and
 
 
 
